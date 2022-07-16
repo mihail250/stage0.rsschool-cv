@@ -1,8 +1,14 @@
 ## Mihail Melihow
 ----
 Contact information:
+
+
 Phone: 89537472536
+
+
 E-mail: mmelihow@gmail.com
+
+
 ----
 # Briefly About Myself:
 
